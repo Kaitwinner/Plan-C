@@ -1,1 +1,1 @@
-# Plan-C
+# mangurid.com
